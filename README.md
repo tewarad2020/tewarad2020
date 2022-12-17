@@ -1,4 +1,5 @@
-### Hi, My name is Ford. 👋 
+### ✨ Hi, My name is Ford. 👋 ✨
+🌱 > Studying in the Faculty of Computer Engineering. 
 
 > I am studying in the computer engineering Chiang Mai University (cmu).
 
